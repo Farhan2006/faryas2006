@@ -1,2 +1,2 @@
 # faryas2006
-Just another repository
+Hi, I am Farhan
